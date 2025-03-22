@@ -3,4 +3,4 @@ Panty Place est votre marketplace pour l'achat et la vente de culottes sales. Vo
 Les vendeuses peuvent mettre en vente gratuitement leurs produits et discuter avec les membres du site.
 
 Beaucoup d'hommes apprécient acheter des culottes sales et autres vêtements portés par des femmes et sur Panty Place vous pouvez en trouver dans beaucoup de styles. Vous pouvez facilement rechercher le type de produits que vous voulez acheter.
-<a href="https://www.x.com"><img src="https://github.githubassets.com/assets/copilot-logo-gradient-white-bf2a125b15f1.svg"></a>
+<a href="https://www.x.com"><img src="https://github.githubassets.com/assets/copilot-logo-gradient-white-bf2a125b15f1.svg/#/https://github.com/"></a>
